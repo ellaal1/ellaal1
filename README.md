@@ -10,4 +10,4 @@
 
 😄 Pronouns: She/Her
 
-⚡ Fun fact: I'm not just a tech enthusiast. Let's share stories and find common ground beyond the world of coding!
+⚡ Fun fact: I'm not just a tech enthusiast. Let's share stories and find common ground beyond the world of coding!!
